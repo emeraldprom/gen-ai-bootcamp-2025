@@ -1,1 +1,1 @@
-Exampro.co free GenAI Bottcamp 2025
+Exampro.co free GenAI Bootcamp 2025
